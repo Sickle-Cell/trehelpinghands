@@ -1,2 +1,3 @@
-# trehelpinghandsdeposit in acvount
+# trehelpinghandsdeposit in account where funds going
+
 Non profit organization
